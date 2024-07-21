@@ -39,5 +39,5 @@ If you'd like to get in touch with me for any reason, whether to discuss a proje
 
 LinkedIn
 GitHub
-Email: rishabh@example.com
-WhatsApp: +919415126615
+Email: pandeyrishabh3011@gmail.com
+
